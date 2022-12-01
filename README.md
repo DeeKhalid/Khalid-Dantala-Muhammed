@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **kmdantala@gmail.com**
 
-- ⚡ Fun fact **I am Movie freak**
+- ⚡ Fun fact **I am a Movie freak**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
